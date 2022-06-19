@@ -3,7 +3,7 @@
 ```python
 • Cara Install Bisa Cek Di YouTube Mimin >_<
 ```
-
+• Link YouTube : https://youtube.com/channel/UClgRSMeKAeAViJgjwue4dyw
 ```
-Link key : https://is.gd/gYZKrI
+• Link key : https://is.gd/gYZKrI
 ```
